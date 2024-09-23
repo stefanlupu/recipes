@@ -24,4 +24,4 @@
 6. Stir in the milk to loosen the batter.
 7. Add the nuts and chocolate chips and fold them in.
 8. Pour the batter into loaf pans.
-9. Bake until a toothpick inserted into the center of the banana bread comes out clean (approximately 60 to 70 minutes).
+9. Bake until a toothpick inserted into the center of the banana bread comes out clean (approx 60-70m).
